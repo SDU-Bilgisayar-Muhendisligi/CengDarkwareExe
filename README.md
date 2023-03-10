@@ -1,2 +1,2 @@
 # CengDarkwareExe
-# ARKADAŞLAR BEN İLK VE TEK İCRAATIMI YAPTIM GERİSİ SİZDE
+
